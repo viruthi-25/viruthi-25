@@ -1,2 +1,1 @@
 VIRUTHIKA 
-* The only one 🦋✨
